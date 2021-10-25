@@ -13,3 +13,4 @@ https://www.youtube.com/watch?v=HbgznAWwOq4 Gold
 ogangebank -system https://www.mediafire.com/folder/11x2ha7gnus02/Download
 
 button https://www.mediafire.com/view/8qxi1nhp61q001u/download.jpg
+verify https://www.youtube.com/watch?v=wmoxE1sJc1c

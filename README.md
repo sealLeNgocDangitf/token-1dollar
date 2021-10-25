@@ -31,3 +31,8 @@ amazon https://m.media-amazon.com/images/I/51ULBoVSTcL.jpg yDmH0d
 shutdown ransome https://www.youtube.com/watch?v=NapMosEJnRE&t=1461s
 
 calculartor https://www.youtube.com/watch?v=P2HHpZgOgXk&t=3s
+
+connect https://www.youtube.com/watch?v=d5lEkz3Bomc&t=686s 1 hào
+
+Pick loop https://www.youtube.com/watch?v=Uso0Qt-PjBc 1 hào ITF payment
+

@@ -36,3 +36,4 @@ connect https://www.youtube.com/watch?v=d5lEkz3Bomc&t=686s 1 hào
 
 Pick loop https://www.youtube.com/watch?v=Uso0Qt-PjBc 1 hào ITF payment
 
+crc https://www.youtube.com/watch?v=izG7qT0EpBw&t=1854s comit

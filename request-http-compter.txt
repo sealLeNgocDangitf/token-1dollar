@@ -1,4 +1,4 @@
 check pixel color background
 MHz
-connect computer
+connect computer 9 view
 (...) read me

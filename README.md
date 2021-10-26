@@ -43,3 +43,6 @@ Pay 18 https://mega.nz/folder/os0gnbjY#vTXu3iYtnn5dMBzaTl91-Q
 Pay 6 https://mega.nz/folder/xs8hUYIY#aPtxPWGf2geYWfbZ3f0lZw
 
 Pay 3 https://mega.nz/folder/xs8hUYIY#aPtxPWGf2geYWfbZ3f0lZw
+
+checking
+https://www.youtube.com/watch?v=eq5YpKHXJDM&t=186s
